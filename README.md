@@ -8,7 +8,7 @@
   </a>
 <h3 align="center">Trasformación digital de organizaciones de la sociedad civil</h3>
   <p align="center">
-        Tania Sayuri Guizado Hernández | A01640092 | Grupo 101
+        Equipo 9 | Grupo 101
 </div>
 
 
